@@ -1,4 +1,4 @@
-![picture](img/VP clone-399x488.jpg)
+![picture](img/photo2.jpg)
 
 ## Виктор Петров
 ### Образование высшее
